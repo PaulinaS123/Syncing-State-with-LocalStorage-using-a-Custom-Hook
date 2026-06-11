@@ -2,7 +2,7 @@
 
 ## Student
 
-Paulina Salomon
+Victoria Salomon
 
 ## Overview
 
